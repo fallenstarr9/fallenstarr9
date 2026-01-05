@@ -7,14 +7,19 @@
      Im shy and super awkward, so sorry I don't talk much.
 
      Don't be weird please
-
- ══════════════════════════════════════════  ⋆★⋆  ═══════════════════════════════════════════
-
-✩
+     
 
 ✩
 
+
 ✩
+
+
+✩
+
+
+✩
+
 
 ✩
 
